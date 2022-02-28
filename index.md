@@ -1,6 +1,6 @@
 # Michael Tallman, CFA
 56 Discovery Ridge Circle S.W. Calgary, AB T3H 5T8 \| 403 472-2159 \|
-mtallman\@codemiser.com
+mtallman@codemiser.com
 
 ## Career Profile
 
